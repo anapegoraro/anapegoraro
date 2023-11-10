@@ -8,5 +8,4 @@ Estou usando o alura
 
 ana.clara.pegoraro@escola.pr.gov.br
 
-
-![](https://media.tenor.com/eVhNSJ-Yg_cAAAAd/give-me-my-dishes-my-dishes.gif)
+![](https://media.tenor.com/iYW2IK5KitkAAAAd/ye-dishes.gif)
